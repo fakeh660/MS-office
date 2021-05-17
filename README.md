@@ -1,0 +1,2 @@
+# MS-office
+Hi I am fakeh and I am from Pakistan. I have worked as a data entry operator. I worked in Microsoft word for making different types of documents. It was the great experience to be a creator of different projects in word and excel. I am acquainted with the skills that any Microsoft office work demand. Some skills that are related to this are listed down and I can do these work better for you: PDF MS word Data entry Excel.
